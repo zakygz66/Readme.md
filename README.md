@@ -9,4 +9,4 @@
 
 ## Klik Aja Bang
 
-#### Pedo Awikwok:v : [`gh pedo`](https://github.com/CacaX/)
+#### Pedo Awikwok:v : [`gh pedo`](https://github.com/ChacaX/)
