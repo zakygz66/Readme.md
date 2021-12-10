@@ -2,11 +2,16 @@
 ## Fazilla I'm Sorry☺
        Please☺
 
-## Love You
+## Sorry
 
 
-<p><a href="https://wa.me/6283876159184?text=hallo+abang+ganteng><"> <img src="https://i.postimg.cc/sVJMVpR7/Remini20211108215957883.jpg" alt="Klik bang" /></a></p>
+<p><a  <img src="https://pin.it/5loomM2" alt="I'M Sorry☺" /></a></p>
 
-## Klik Aja Bang
+## Sorry …
+Perhaps only this word can I convey
+Sorry … I make you dissapointed
+Sorry … If I behave like a little child
+Sorry … If I follow my ego
+And Sorry … If I can’t be like what you want☺
 
-#### Pedo Awikwok:v : [`gh pedo`](https://github.com/ChacaX/)
+<p><a href="https://wa.me/6285731261728?text=+aku+menerima+maaf+mu🤣"
