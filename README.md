@@ -1,8 +1,8 @@
 
-## Mampir Bang?
-  Jangan Bully Lah Bang Kitakan Kawan☺
+## Fazilla I'm Sorry☺
+       Please☺
 
-## Whatsapp Me><
+## Love You
 
 
 <p><a href="https://wa.me/6283876159184?text=hallo+abang+ganteng><"> <img src="https://i.postimg.cc/sVJMVpR7/Remini20211108215957883.jpg" alt="Klik bang" /></a></p>
