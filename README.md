@@ -10,7 +10,7 @@ Sorry … If I follow my ego
 And Sorry … If I can’t be like what you want☺
 
 
-## sorry for fazili<p><a  <img src="https://pin.it/5loomM2" alt="I'M Sorry☺"> /></a></p>
+## sorry for fazila <p><a  <img src="https://pin.it/5loomM2" alt="I'M Sorry☺"> /></a></p>
 
 
 #### Click To Accept My Sorry <p><a href="https://wa.me/6285731261728?text=+aku+menerima+maaf+mu🤣">
