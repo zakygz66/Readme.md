@@ -10,7 +10,7 @@ Sorry … If I follow my ego
 And Sorry … If I can’t be like what you want☺
 
 
-<p><a href="Sorry"> <img src="https://pin.it/5loomM2" alt="Click To Accept My Sorry👇" /></a></p>
+        👇CLICK TO REPLY👇
 
 
 #### Please Click : [`Click To Accept My Sorry`](https://wa.me/62857-3126-1728?text=aku+menerima+maaf+mu🤣)
